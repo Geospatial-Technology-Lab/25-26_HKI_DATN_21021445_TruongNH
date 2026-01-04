@@ -81,6 +81,8 @@ Dự án nghiên cứu và dự báo sinh khối rừng (Above Ground Biomass - 
 ## 👤 Tác giả
 
 **Nguyễn Hữu Trường**
+📧 Email: huutruongnb@gmail.com  
+📱 SĐT: 0348691355
 
 Viện Công nghệ Hàng không Vũ trụ - Trường Đại học Công nghệ - ĐHQG Hà Nội
 
